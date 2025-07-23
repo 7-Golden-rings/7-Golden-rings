@@ -1,3 +1,4 @@
+![Visitor Count](https://profile-counter.glitch.me/{L0W-L1FE}/count.svg)
 안녕하세요! 저는 레아!
 
 ![1000002282](https://github.com/user-attachments/assets/8d8e8fec-915f-468b-b951-8399824a8cf9)
