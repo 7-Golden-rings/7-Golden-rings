@@ -25,6 +25,7 @@ ________________
    
    𝙃𝙖𝙫𝙚 𝙖 𝙜𝙧𝙚𝙖𝙩 𝙙𝙖𝙮 / 𝙣𝙞𝙜𝙝𝙩 ☺️🤙🏼
    __
-   ![1000002283](https://github.com/user-attachments/assets/cccd832e-1b40-4705-9717-f5ac9a8c8509)
+   ![1000002284](https://github.com/user-attachments/assets/36fd1d49-8b71-4c13-ba73-09b44b6b2098)
+
 
 
