@@ -20,7 +20,4 @@ ________________
    
    𝙃𝙖𝙫𝙚 𝙖 𝙜𝙧𝙚𝙖𝙩 𝙙𝙖𝙮 / 𝙣𝙞𝙜𝙝𝙩 ☺️🤙🏼
    __
-   ![1000002284](https://github.com/user-attachments/assets/36fd1d49-8b71-4c13-ba73-09b44b6b2098)
-
-
-
+   ![1000002322](https://github.com/user-attachments/assets/7913280c-8258-4183-8eea-800b56ea150b)
