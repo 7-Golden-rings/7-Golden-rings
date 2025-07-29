@@ -1,6 +1,6 @@
 안녕하세요! 저는 레아! / Hello, I'm Leah!
    
-   Age 14 || 𝙎𝙝𝙚/𝙝𝙚𝙧 ||     𝙀𝙣𝙜𝙡𝙞𝙨𝙝 + 𝙨𝙩𝙪𝙙𝙮𝙞𝙣𝙜 한국 ||
+   Age 14 || 𝙎𝙝𝙚/𝙝𝙚𝙧 ||     𝙀𝙣𝙜𝙡𝙞𝙨𝙝 + 𝙨𝙩𝙪𝙙𝙮𝙞𝙣𝙜 한국 || I am interested in kpop and kdramas and motorcycles. My hobbies are boxing, singing, and lyric writing.
    
 _________
 
@@ -11,8 +11,6 @@ _________
   I am a huge Ateez, StrayKidz and Blackpink fan.
 
   _________
-
-  I am interested in boxing, singing, Kdramas, Kpop
    
    ![1000002259](https://github.com/user-attachments/assets/27c25b84-ec5e-49f1-9923-2a96b1f115e3)
 
