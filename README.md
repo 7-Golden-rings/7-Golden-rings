@@ -1,6 +1,6 @@
 안녕하세요! 저는 레아! / Hello, I'm Leah!
    
-   Age 14 || 𝙎𝙝𝙚/𝙝𝙚𝙧 ||     𝙀𝙣𝙜𝙡𝙞𝙨𝙝 + 𝙨𝙩𝙪𝙙𝙮𝙞𝙣𝙜 한국 || I am interested in kpop and kdramas and motorcycles. My hobbies are boxing, singing, and lyric writing.
+   Age 14 || 𝙎𝙝𝙚/𝙝𝙚𝙧 ||     𝙀𝙣𝙜𝙡𝙞𝙨𝙝 + 𝙨𝙩𝙪𝙙𝙮𝙞𝙣𝙜 한국 || I am interested in kpop and kdramas and motorcycles.
    
 _________
 
