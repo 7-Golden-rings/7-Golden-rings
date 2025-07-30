@@ -11,6 +11,8 @@ _________
   I am a huge Ateez, StrayKidz and Blackpink fan.
 
   _________
+
+  Interests: Bloodhounds (Kdrama) Vincenzo (Italian-Kdrama) Taecyeon (Kpop artist) Squid Game, Minecraft 
    
    ![1000002259](https://github.com/user-attachments/assets/27c25b84-ec5e-49f1-9923-2a96b1f115e3)
 
