@@ -2,7 +2,5 @@
 
 Hello...Im Leah 
 
-14 (June 10th bday) -- Straight ally -- She/her -- English + studying 한국어 -- 18+ can interact idc.
-
+14 (June 10th bday) -- Straight ally -- She/her -- English + studying 한국어 -- 18+ can interact idc -- Dry + matured -- Kpop + kdrama lover.. 
    𝙃𝙖𝙫𝙚 𝙖 𝙜𝙧𝙚𝙖𝙩 𝙙𝙖𝙮 / 𝙣𝙞𝙜𝙝𝙩 ☺️🤙🏼
-   __
