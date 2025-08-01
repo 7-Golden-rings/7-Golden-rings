@@ -8,3 +8,5 @@ Hello...Im Leah
 
 
   If no one told you today, your loved! 𝙃𝙖𝙫𝙚 𝙖 𝙜𝙧𝙚𝙖𝙩 𝙙𝙖𝙮 / 𝙣𝙞𝙜𝙝𝙩! ☺️🤙🏼
+
+check out my friends patreon pls! https://www.patreon.com/nikomu
