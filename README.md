@@ -22,6 +22,6 @@ _______
 
   If no one told you today, your loved! 𝙃𝙖𝙫𝙚 𝙖 𝙜𝙧𝙚𝙖𝙩 𝙙𝙖𝙮 / 𝙣𝙞𝙜𝙝𝙩! ☺️🤙🏼
 
-check out my friends patreon <3 https://www.patreon.com/nikomu
+@hanniehannie 𝙃𝘼𝙉𝙉 𝙄𝙎 𝙈𝙔 𝘽𝘼𝘽𝙔 🖤
 
 <img width="240" height="30" alt="1000002429" src="https://github.com/user-attachments/assets/8b2da31b-0c70-40eb-82a4-e8e5e29595a7" />
