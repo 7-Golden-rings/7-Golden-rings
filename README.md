@@ -1,4 +1,5 @@
-![1000002430](https://github.com/user-attachments/assets/65ff011f-971c-40de-8818-106f6cc8d542)
+![1000002445](https://github.com/user-attachments/assets/a22c28a7-55ba-4a04-9cbd-85b1d2c23c3a)
+
 
 ⁹𐔌՞. .՞𐦯. . 𖦹 ׂ 𓈒  ／ ⋆ ۪
 
@@ -28,3 +29,5 @@ _______
 @hanniehannie 𝙃𝘼𝙉𝙉 𝙄𝙎 𝙈𝙔 𝘽𝘼𝘽𝙔 🖤
 
 <img width="240" height="30" alt="1000002429" src="https://github.com/user-attachments/assets/8b2da31b-0c70-40eb-82a4-e8e5e29595a7" />
+
+![1000002444](https://github.com/user-attachments/assets/691338ae-8240-45eb-aa41-4ad3a5d0d402)
