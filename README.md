@@ -1,5 +1,8 @@
-Straight ally + Ace .★.
-English + studying multiple languages but mostly 한국어 .★. she/her only pls ^^
+Leah or Hyeun-Ju!
+
+- Straight ally + Ace
+- She/her only pls
+- English + studying multiple languages but mostly 한국어
 
 ![1000002322](https://github.com/user-attachments/assets/667346b4-9912-4181-b4d9-fc193aa009b0)
 
@@ -17,9 +20,5 @@ English + studying multiple languages but mostly 한국어 .★. she/her only pl
 
 ![1000002461](https://github.com/user-attachments/assets/3cd091db-7e2a-4211-bf4d-fae668cbda0d)
 <img width="99" height="56" alt="1000002460" src="https://github.com/user-attachments/assets/d85ea7fb-1d7f-4b7b-a507-9caf120106d0" />
-
-![1000002445](https://github.com/user-attachments/assets/b90e4791-6c40-40e5-8abc-0b9011351b7c)
-![1000002451](https://github.com/user-attachments/assets/2bfd9a62-64ef-4fc3-9dba-bacb1fe76df9)
-![1000002365](https://github.com/user-attachments/assets/d185a889-ed47-4a31-941c-b16cddd82fe4)
 
 
