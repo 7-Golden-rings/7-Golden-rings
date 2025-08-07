@@ -1,4 +1,3 @@
-![1000002445](https://github.com/user-attachments/assets/a22c28a7-55ba-4a04-9cbd-85b1d2c23c3a)
 
 
 ⁹𐔌՞. .՞𐦯. . 𖦹 ׂ 𓈒  ／ ⋆ ۪
@@ -30,4 +29,9 @@ _______
 
 <img width="240" height="30" alt="1000002429" src="https://github.com/user-attachments/assets/8b2da31b-0c70-40eb-82a4-e8e5e29595a7" />
 
-![1000002444](https://github.com/user-attachments/assets/691338ae-8240-45eb-aa41-4ad3a5d0d402)
+![1000002464](https://github.com/user-attachments/assets/a8f71e7f-eb70-4475-b939-afb311e318f1)
+![1000002463](https://github.com/user-attachments/assets/8a6fb3a6-53dd-411c-892b-bfe2a61714ca)
+![1000002462](https://github.com/user-attachments/assets/cea9a246-d428-469e-bd40-87a38ffe03be)
+![1000002461](https://github.com/user-attachments/assets/3cd091db-7e2a-4211-bf4d-fae668cbda0d)
+<img width="99" height="56" alt="1000002460" src="https://github.com/user-attachments/assets/d85ea7fb-1d7f-4b7b-a507-9caf120106d0" />
+
