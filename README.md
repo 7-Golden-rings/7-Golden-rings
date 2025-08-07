@@ -2,7 +2,7 @@ Leah or Hyeun-Ju!
 
 - Straight ally + Ace
 - She/her only pls
-- English + studying multiple languages but mostly 한국어
+- English + studying 한국어 and Japanese 
 
 ![1000002322](https://github.com/user-attachments/assets/667346b4-9912-4181-b4d9-fc193aa009b0)
 
