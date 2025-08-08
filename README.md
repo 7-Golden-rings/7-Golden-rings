@@ -1,11 +1,6 @@
-# 🔪 . **Leah!** . 🦴
--***Straight ally + ace***
+# 🔪 . **Leah!** . 🩶
 
--***she/her only***.       
-
--***14***
-
--***English + studying Korean***
+• Straight ally + ace 🔪 She/her 🖤 14 🎧 English + studying Korean 🩶
 
 ![1000002431](https://github.com/user-attachments/assets/a3a5ffc4-32bf-46ff-be8b-e6215eaad255)![1000002431](https://github.com/user-attachments/assets/5c9d7d09-af28-4ecd-a2fb-ca8999c7c8df)
 
