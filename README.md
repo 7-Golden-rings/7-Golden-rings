@@ -1,4 +1,4 @@
-# 🔪 . **Leah!** . 🩶
+# Leah! ^_^
 
 **• Straight ally + ace 🔪 She/her 🖤 14 🎧 English + studying Korean 🩶**
 
