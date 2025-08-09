@@ -1,8 +1,8 @@
-# ${\textsf{\color{pink} ♡ 𝙻𝚎𝚊𝚑}}$ !
+# ${\textsf{\color{red} ♡ 𝙻𝚎𝚊𝚑!}}$
 
-## Straight ally ★ She/her ★ 14 ★ English + studying Korean!
+## ${\textsf{\color{red} Straight ally ★ she/her}}$ ${\textsf{\color{red}★ 14 ★ English+studying}}$ ${\textsf{\color{red}korean}}$
 
-### My fav group atm is ONE OR EIGHT the jpop boy group! ^^ (Souma and Yuga are my favs)
+### ${\textsf{\color{red}My fav group is ONE OR EIGHT}}$ ${\textsf{\color{red}the Jpop boy group!}}$ ${\textsf{\color{red}(Souma and Yuga are my favs)}}$
 
 
 ![1000002462](https://github.com/user-attachments/assets/ec31fef8-3e00-4c77-8f60-4bf1fbd5dc8d)
@@ -14,7 +14,7 @@ ________
 
 ![1000002317](https://github.com/user-attachments/assets/e2792fba-f678-433d-8518-b91885516975)
 
-Hyeun-Ju and Jun-woo is me! ✌🏼^_^✌🏼
+${\textsf{\color{red} Hyeun-Ju and Junwoo is me}}$
 
 ![1000002509](https://github.com/user-attachments/assets/4fcd8b57-6247-4320-ab9e-0aeb1f19a81e)
 
