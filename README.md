@@ -2,6 +2,7 @@
 
 ## **• Straight ally + ace 🔪 She/her 🖤 14 🎧 English + studying Korean 🩶** ![1000002482](https://github.com/user-attachments/assets/5f71ebb3-f6b3-44ed-956d-e6f6dd0faf8d) . 
 
+### ***My fav colors are: Black, Pink, Green and blue ^_^ . . I love kpop and Kdramas . . My fav groups atm are: ONE OF EIGHT (Jpop) BLACKPINK (kpop) and STRAYKIDS (Kpop) ^_^ Please be nice to people! :)***
 
 
 
