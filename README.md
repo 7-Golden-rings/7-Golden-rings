@@ -8,6 +8,3 @@
 ![1000002322](https://github.com/user-attachments/assets/89aed1c2-a945-4cea-8e1f-e47c4c8be85e)
 ![1000002477](https://github.com/user-attachments/assets/a07cc8b0-9080-4c30-ac7f-ba7fe710f20e)
 ${\textsf{\color{red}Hai Hannie ilyyyy!}}$
-
-!
-
