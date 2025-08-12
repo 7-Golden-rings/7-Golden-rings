@@ -1,6 +1,8 @@
 # ${\textsf{\color{red}𝙇𝙀𝘼𝙃 !! <3}}$
 ## ${\textsf{\color{red}Straight ally /-/ She/her/-/14}}$ ${\textsf{\color{red}/-/ English + studying Korean}}$
-### ${\textsf{\color{red}I really love the}}$ ${\textsf{\color{red}Jpop boy group}}$ ${\textsf{\color{red}ONE OR EIGHT}}$ ${\textsf{\color{red}(souma is my fav)}}$
+### ${\textsf{\color{red}I really love the}}$ ${\textsf{\color{red}Jpop boy group}}$ ${\textsf{\color{red}ONE OR EIGHT}}$ ${\textsf{\color{red}(souma is my fav)}}$ 
+# ${\textsf{\color{red}I also LOVE Ok Taecyeon}}$ ${\textsf{\color{red} Taecyeon}}$
+
 
 
 
