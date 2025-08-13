@@ -10,3 +10,7 @@
 ${\textsf{\color{red}Hai Hannie ilyyyy!}}$
 
 ## https://pr1d3.straw.page ${\textsf{\color{red}DNI, INTERESTS + KINS}}$
+
+![1000002551](https://github.com/user-attachments/assets/cbb0b203-4d61-4fc1-b5bd-5653e8c7fb78)
+![1000002550](https://github.com/user-attachments/assets/d4e54b1b-373d-46ca-83f4-05bad4aaa95a)
+
