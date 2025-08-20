@@ -3,7 +3,7 @@
 
 I am 14 yrs old. I am currently studying 한국어 (korean) and I might also study Vietnamese.
 
-❤️: Kdramas, kpop, sleep, cats, reptiles 
+❤️: Kdramas, kpop, sleep, cats, reptiles, my mom
 
 ❌: Violence, Loud noises, rude people, my dad
 ____
