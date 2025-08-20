@@ -1,15 +1,13 @@
-#           ${\textsf{\color{grey}🖤𝙇𝙚𝙖𝙝🩶}}$
+# Leah
+
 ## artist , writer , lyricist .
 
-I am 14 yrs old. I am currently studying 한국어 (korean) and I might also study Vietnamese.
+- I am 14 yrs old. I am currently studying 한국어 (korean) and I might also study Vietnamese.
 
-❤️: Kdramas, kpop, sleep, cats, reptiles, my mom
-
-❌: Violence, Loud noises, rude people, my dad
+- Feel free to interact with me. I love meeting new people and learning about them. My best friends atm are my close friends: Tom, Hann, Yurie and Jarosek.
 ____
 
-# ${\textsf{\color{grey}🖤Some songs I like🩷}}$
-${\textsf{\color{grey}+ my fav artists}}$
+# Some songs I like + my fav artists
 ![1000002678](https://github.com/user-attachments/assets/5a90ec35-be88-4d88-8ac4-070b548222a8)
 ![1000002677](https://github.com/user-attachments/assets/b52c8111-0a80-4523-9836-859f094f820c)
 ![1000002676](https://github.com/user-attachments/assets/6910fe47-1f56-4ac3-b468-48cccc7568e8)
