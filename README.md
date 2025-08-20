@@ -8,7 +8,7 @@ I am 14 yrs old. I am currently studying 한국어 (korean) and I might also stu
 ❌: Violence, Loud noises, rude people, my dad
 ____
 
-# ${\textsf{\color{grey}Some songs I like}}$
+# ${\textsf{\color{grey}🖤Some songs I like🩷}}$
 ${\textsf{\color{grey}+ my fav artists}}$
 ![1000002678](https://github.com/user-attachments/assets/5a90ec35-be88-4d88-8ac4-070b548222a8)
 ![1000002677](https://github.com/user-attachments/assets/b52c8111-0a80-4523-9836-859f094f820c)
