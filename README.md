@@ -1,4 +1,11 @@
-![1000002477](https://github.com/user-attachments/assets/a110ba65-1785-493c-8980-167a26121b45)
-![1000002322](https://github.com/user-attachments/assets/8043ec17-26fc-4739-97ee-3f497b23711a)
-![1000002477](https://github.com/user-attachments/assets/77df5d8b-bbcb-4fb3-ac88-fe5adbe3063e)
+# ${\textsf{\color{grey}Leah}}$
+## artist , writer , lyricist 
+### 14 years old
+_____
+hi im Leah. My birthday is June 10th of 2011. Leah is short for my real name, I do not like my real name so please dont ask for it and please only call me Leah. I am currently studying 한국어 (korean) and I might also study Vietnamese. 18+ can freely int as long as your mature and chill.
+___ 
+
+## ${\textsf{\color{Red}This respiratory is}}$ ${\textsf{\color{red} Currently a work}}$ ${\textsf{\color{red}in progress}}$
+
+
 
