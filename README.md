@@ -1,6 +1,6 @@
-# Leah
+# <p align="center">Leah.</p>
 
-## artist , writer , lyricist .
+## <p align="center"> Artist, writer, lyricist </p>
 
 - I am 14 yrs old. I am currently studying 한국어 (korean) and I might also study Vietnamese.
 
@@ -16,7 +16,4 @@ Artists: Jackson Wang, GOT7, ONE OR EIGHT, Stray Kids, Blackpink, ZE:A, ill add 
 ___ 
 
 ## ${\textsf{\color{Red}This respiratory is}}$ ${\textsf{\color{red} Currently a work}}$ ${\textsf{\color{red}in progress}}$
-
-<img width="245" height="325" alt="1000002680" src="https://github.com/user-attachments/assets/43baa59f-e4d6-4ba4-af32-9cd8ea4c2afe" />
-
 
