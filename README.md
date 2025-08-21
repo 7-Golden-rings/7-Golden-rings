@@ -18,7 +18,7 @@ ___
 
 # <p align="center">Links.</p>
 
-### [Carrd](https://t3amw4ngg.carrd.co)
+### • [Carrd](https://l3ahhhha.carrd.co) + making strawpage!..
 
 ## ${\textsf{\color{Red}This respiratory is}}$ ${\textsf{\color{red} Currently a work}}$ ${\textsf{\color{red}in progress}}$
 
