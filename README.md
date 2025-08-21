@@ -4,7 +4,8 @@
 
 - I am 14 yrs old. I am currently studying 한국어 (korean) and I might also study Vietnamese.
 
-- Feel free to interact with me. I love meeting new people and learning about them. My best friends atm are my close friends: Tom, Hann, Yurie and Jarosek.
+- Feel free to interact with me. I love meeting new people and learning about them. My best friends atm are my close friends: Tom, Hann, Yurie and Jarosek. 18+ int freely
+
 ____
 
 # Some songs I like + my fav artists
