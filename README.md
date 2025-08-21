@@ -20,5 +20,6 @@ ___
 
 ### • [Carrd](https://l3ahhhha.carrd.co) and [Strawpage](https://g1mm1ckssay.straw.page)
 
-## ${\textsf{\color{Red}This respiratory is}}$ ${\textsf{\color{red} Currently a work}}$ ${\textsf{\color{red}in progress}}$
+## ${\textsf{\color{Red}This respiratory is}}$ ${\textsf{\color{red}currently a work}}$ ${\textsf{\color{red}in progress}}$
+i tend to add onto this respitory daily
 
