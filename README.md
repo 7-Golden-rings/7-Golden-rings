@@ -16,5 +16,9 @@ Artists: Jackson Wang, GOT7, ONE OR EIGHT, Stray Kids, Blackpink, ZE:A, ill add 
 
 ___ 
 
+# <p align="center">Links.</p>
+
+### [Carrd](https://t3amw4ngg.carrd.co)
+
 ## ${\textsf{\color{Red}This respiratory is}}$ ${\textsf{\color{red} Currently a work}}$ ${\textsf{\color{red}in progress}}$
 
