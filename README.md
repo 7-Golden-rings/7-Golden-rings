@@ -6,7 +6,7 @@
 
 - Feel free to interact with me. I love meeting new people and learning about them. My best friends are my close friends: [Tom](https://github.com/spikedfist), [Hann](https://github.com/hanniehannie), [Yurie](https://github.com/yuriemeow) and [Jarosek](https://github.com/PolishKorean2009). 18+ int freely
 - My favorite music artists are: Furture, One Or Eight, Jackson Wang, Got7, StrayKids, ZE:A and ATEEZ 
-- I really need more friends so pls bmf im desperate 🙏🏼
+- I really need more friends so pls bmf im desperate 🙏🏼 my friends who aren't Tom, Hann, Yurie and Jarosek keep ignoring me. Please bmf....
 
  Be yourself!
 ___ 
