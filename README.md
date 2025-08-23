@@ -9,6 +9,9 @@
 - I really need more friends so pls bmf im desperate 🙏🏼 my friends who aren't Tom, Hann, Yurie and Jarosek keep ignoring me. Please bmf....
 
  Be yourself!
+
+ <img width="273" height="283" alt="1000002699" src="https://github.com/user-attachments/assets/cd939a30-4e2a-4b17-a5af-0ef4e984afa6" />
+
 ___ 
 ###    <p align="center">[Carrd](https://l3ahhhha.carrd.co) and [Strawpage](https://g1mm1ckssay.straw.page).</p>
 
