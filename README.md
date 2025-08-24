@@ -13,7 +13,7 @@
  <img width="273" height="283" alt="1000002699" src="https://github.com/user-attachments/assets/cd939a30-4e2a-4b17-a5af-0ef4e984afa6" />
 
 ___ 
-###    <p align="center">[Carrd](https://l3ahhhha.carrd.co) and [Strawpage](https://g1mm1ckssay.straw.page).</p>
+###    <p align="center">[Carrd](https://l3ahhhha.carrd.co) fuck strawpage bro
 
 # <p align="center">${\textsf{\color{Red}This respiratory is}}$ ${\textsf{\color{red}currently a work}}$ ${\textsf{\color{red}in progress}}$</p>
 
