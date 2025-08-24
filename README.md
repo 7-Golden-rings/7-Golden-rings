@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=Leah-365&color=blueviolet)
+
 # <p align="center">Leah.</p>
 
 ## <p align="center"> Artist, writer, lyricist </p>
