@@ -4,7 +4,7 @@
 
 ##     <p align="center">artist , writer , lyricist</p>
 
-- I am 14 yrs old, my birthday is June 10th. I am currently studying 한국어, italian and 中國人！ ^_^
+- I am 14 yrs old, my birthday is June 10th. I am currently studying 한국어 ^_^
 
 - Feel free to interact with me. I love meeting new people and learning about them. My best friends are my close friends: [Tom](https://github.com/spikedfist), [Hann](https://github.com/hanniehannie), [Yurie](https://github.com/yuriemeow) and [Jarosek](https://github.com/PolishKorean2009). 18+ int freely
 - My favorite music artists are: **Furture**, **One Or Eight**, **Jackson Wang**, **Got7**, **StrayKids**, **ZE:A**, **Ok Taecyeon**, **2pm** and **ATEEZ**
