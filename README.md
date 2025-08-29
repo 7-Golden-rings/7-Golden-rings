@@ -8,7 +8,8 @@
   
 ![1000002477](https://github.com/user-attachments/assets/f7fe33d8-48d5-45cb-aac7-707881d31f95)
 ![1000002322](https://github.com/user-attachments/assets/259f0144-dd49-4024-9bee-c00037c9ba41)
-
+    <p align="left">Check out my best friends [Jarosek!](https://github.com/PolishKorean2009), [Hyun!](https://github.com/th3fantasticc), [MY WIFEY HANNNNNIEEEEEEE](https://github.com/hanniehannie), [Tom!](https://github.com/spikedfist),[Yurie!](https://github.com/yuriemeow).. THEY ARE SO AWESOME!</p>
+    
 <p align="right">c+h+k+b freely!</p>
         <p align="center">I kin Lee Do-Young, Hong Woojin, Kim Geon-woo and Cha Hyeon-ju from Bloodhounds :)</p>
 
@@ -19,3 +20,5 @@
 
 
 I also love Ok Taecyeon and Jackson Wang!
+
+# [Carrd](https://carrd.co/dashboard/1183175310972117/build) this is a wip dw about it atm
