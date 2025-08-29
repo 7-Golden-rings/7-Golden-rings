@@ -21,4 +21,3 @@
 
 I also love Ok Taecyeon and Jackson Wang!
 
-# [Carrd](https://carrd.co/dashboard/1183175310972117/build) this is a wip dw about it atm
