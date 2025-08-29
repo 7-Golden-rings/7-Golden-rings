@@ -12,3 +12,5 @@
   
 <p align="right">c+h+k+b freely!</p>
         <p align="center">I kin Lee Do-Young, Hong Woojin, Kim Geon-woo and Cha Hyeon-ju from Bloodhounds :)</p>
+![1000002703](https://github.com/user-attachments/assets/506338d7-2678-43c5-8e97-a8d84c83386d)
+I also love Ok Taecyeon and Jackson Wang!
