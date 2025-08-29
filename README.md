@@ -7,7 +7,7 @@
   **<p align="center">I LOVE THE K-DRAMA, BLOODHOUNDS!!!</p>**
   
 ![1000002477](https://github.com/user-attachments/assets/f7fe33d8-48d5-45cb-aac7-707881d31f95)
-![1000002322](https://github.com/user-attachments/assets/259f0144-dd49-4024-9bee-c00037c9ba41)
+![1000002322](https://github.com/user-attachments/assets/259f0144-dd49-4024-9bee-c00037c9ba41)![1000002477](https://github.com/user-attachments/assets/8d7878f0-8806-4f47-be04-86f35bfcb259)
     <p align="left">Check out my best friends [Jarosek!](https://github.com/PolishKorean2009), [Hyun!](https://github.com/th3fantasticc), [MY WIFEY HANNNNNIEEEEEEE](https://github.com/hanniehannie), [Tom!](https://github.com/spikedfist),[Yurie!](https://github.com/yuriemeow).. THEY ARE SO AWESOME!</p>
     
 <p align="right">c+h+k+b freely!</p>
