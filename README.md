@@ -19,5 +19,5 @@
 ![1000002551](https://github.com/user-attachments/assets/cac727e8-9fb9-4a2a-a42c-9380d539a9ff)
 
 
-I also love Ok Taecyeon and Jackson Wang!
+I also love Ok Taecyeon, ONE OR EIGHT and Jackson Wang!
 
