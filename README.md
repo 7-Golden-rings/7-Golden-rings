@@ -1,4 +1,4 @@
-# [Strawpage](https:stopbrostoprakai.straw.page)
+# [Strawpage](https://stopbrostoprakai.straw.page)
   **<p align="center">I LOVE THE K-DRAMA, BLOODHOUNDS!!!</p>**
   ![1000002477](https://github.com/user-attachments/assets/32e13971-bf89-4f73-9736-a929ab92a6fb)
 
