@@ -18,6 +18,7 @@
 
 ![1000002551](https://github.com/user-attachments/assets/cac727e8-9fb9-4a2a-a42c-9380d539a9ff)
 
+# Music!
 
-I also love Ok Taecyeon, ONE OR EIGHT and Jackson Wang!
+[Jackson Wang](https://open.spotify.com/artist/1kfWoWgCugPkyxQP8lkRlY?si=I4GQvQhGSM6PzDUELKLh1w), [ONE OR EIGHT](https://open.spotify.com/artist/5bIttAFRf7URUmuuI9w7XA?si=y09ihDzyQC-ISw3QbvmZBg), [BigBang](https://open.spotify.com/artist/4Kxlr1PRlDKEB0ekOCyHgX?si=ZT2XDhexTlWDDjv_s08wiA), [GOT7](https://open.spotify.com/artist/6nfDaffa50mKtEOwR8g4df?si=KVXBtqrcSoSadTTkJy0p7Q)
 
