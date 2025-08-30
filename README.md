@@ -20,5 +20,5 @@
 
 # Music!
 
-[Jackson Wang](https://open.spotify.com/artist/1kfWoWgCugPkyxQP8lkRlY?si=I4GQvQhGSM6PzDUELKLh1w), [ONE OR EIGHT](https://open.spotify.com/artist/5bIttAFRf7URUmuuI9w7XA?si=y09ihDzyQC-ISw3QbvmZBg), [BigBang](https://open.spotify.com/artist/4Kxlr1PRlDKEB0ekOCyHgX?si=ZT2XDhexTlWDDjv_s08wiA), [GOT7](https://open.spotify.com/artist/6nfDaffa50mKtEOwR8g4df?si=KVXBtqrcSoSadTTkJy0p7Q)
+[Jackson Wang](https://open.spotify.com/artist/1kfWoWgCugPkyxQP8lkRlY?si=I4GQvQhGSM6PzDUELKLh1w), [ONE OR EIGHT](https://open.spotify.com/artist/5bIttAFRf7URUmuuI9w7XA?si=y09ihDzyQC-ISw3QbvmZBg), [BigBang](https://open.spotify.com/artist/4Kxlr1PRlDKEB0ekOCyHgX?si=ZT2XDhexTlWDDjv_s08wiA), [GOT7](https://open.spotify.com/artist/6nfDaffa50mKtEOwR8g4df?si=KVXBtqrcSoSadTTkJy0p7Q), [Furture](https://open.spotify.com/artist/1RyvyyTE3xzB2ZywiAwp0i?si=_zNHd9EdQtKWv82D9C1iMQ)
 
