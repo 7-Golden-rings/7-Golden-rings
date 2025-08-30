@@ -1,4 +1,4 @@
-# Leah       💀🩸🦴
+#  Leah    -`♡´-   💀🩸🦴
   <p align="center"> Straight .
   she/her only .
   14 yrs old .
