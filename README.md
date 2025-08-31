@@ -1,5 +1,6 @@
   <p align="center">Leah</p>
-<p align="center">14 years old . straight . she/her</p>
+<p align="center">14 years old . straight . she/her
+looking forward to making new friends always. </p>
 
  
  ![1000002761](https://github.com/user-attachments/assets/d4d5d922-3d73-4e64-bff4-b9d6d624a8ab)
