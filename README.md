@@ -1,4 +1,6 @@
-# ★ . . [strawpage](https://stopbrostoprakai.straw.page) . . ★
+ ### [Strawpage](https://stopbrostoprakai.straw.page)
+
+ 
  ![1000002653](https://github.com/user-attachments/assets/20662403-b033-479a-9dc1-adadb20f4b52)
 
 
