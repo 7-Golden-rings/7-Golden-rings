@@ -1,4 +1,5 @@
-14 years old . straight . she/her
+  <p align="center">Leah</p>
+<p align="center">14 years old . straight . she/her</p>
 
  
  ![1000002653](https://github.com/user-attachments/assets/20662403-b033-479a-9dc1-adadb20f4b52)
