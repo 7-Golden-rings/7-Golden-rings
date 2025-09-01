@@ -1,3 +1,5 @@
+[Strawpage](https://stopbrostoprakai.straw.page)
+
 ![](https://komarev.com/ghpvc/?username=Leah-365&color=grey)
   <p align="center">Leah</p>
 <p align="center">14 years old . straight . she/her. </p>
