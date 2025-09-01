@@ -15,3 +15,7 @@ ___
 [ZE:A](https://open.spotify.com/artist/6lGfLCig2b5mvDTtsPSrb0?si=r9eTVzHGR2-J_syKL33N2w),
 [Stray Kids](https://open.spotify.com/artist/2dIgFjalVxs4ThymZ67YCE?si=NoStWtAgTL2Wv5mclt9qXA),
 [BLACKPINK](https://open.spotify.com/artist/41MozSoPIsD1dJM0CLPjZF?si=4_d35JHJRGCvblFKBSIIUQ)
+
+![1000002766](https://github.com/user-attachments/assets/4e885301-aa5c-42d0-b913-684ba29a9977)
+
+
