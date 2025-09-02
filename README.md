@@ -1,5 +1,3 @@
-<p align="center">"Can we forget about the things I said when I was drunk? I didn't mean to call you that!"</p>
-
 [Strawpage](https://stopbrostoprakai.straw.page)
 
 ![](https://komarev.com/ghpvc/?username=Leah-365&color=grey)
