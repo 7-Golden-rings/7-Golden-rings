@@ -1,3 +1,5 @@
+[Strawpage](https://b100dh0unds2.straw.page) + [atabook](https://chr1stmas3ve1.atabook.org)
+
 ![](https://komarev.com/ghpvc/?username=Leah-365&color=grey)
   <p align="center">Leah</p>
 <p align="center">14 years old . straight . she/her. </p>
