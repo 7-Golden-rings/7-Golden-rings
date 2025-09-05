@@ -1,4 +1,4 @@
-[Strawpage](https://b100dh0unds2.straw.page) + [atabook](https://chr1stmas3ve1.atabook.org) + [Pronouns](https://en.pronouns.page/Leahisgoated)
+[Strawpage](https://b100dh0unds2.straw.page) + [atabook](https://chr1stmas3ve1.atabook.org)
 
 ![](https://komarev.com/ghpvc/?username=Leah-365&color=grey)
   <p align="center">Leah</p>
