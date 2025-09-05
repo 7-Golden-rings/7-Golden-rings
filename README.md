@@ -12,3 +12,6 @@ _____
    
 ![1000002773](https://github.com/user-attachments/assets/26d10cd9-619b-4f76-b6f5-314d492b32eb)
 
+<p align="center">who tf tryna be the Takeru to my Souma 😝</p>
+
+![1000002777](https://github.com/user-attachments/assets/a37562eb-1792-4d9f-b0b8-d8e6bcd5042f)
