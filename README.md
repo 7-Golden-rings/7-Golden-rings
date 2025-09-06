@@ -1,15 +1,37 @@
-**<p align="center">Leah</p>**
-    **<p align="center">straight - she/her - eng + 한국어</p>**
-_____
- 
- **<p align="center">"I'ma get it bussin' in a black Hellcat"</p>**
+#     <p align="center">Leah</p>
 
- **<p align="center">KAWASAKI | ONE OR EIGHT (Feat. pH-1)
- 0:27 ──●───── -2:11 ⇄ ◃◃ ⅠⅠ ▹▹ ↻</p>**
-[Strawpage](https://b100dh0unds2.straw.page) + [atabook](https://chr1stmas3ve1.atabook.org) + [BEFORE YOU INT](https://jsjasj.straw.page)
-  
-   <p align="center">Me and twins</p>
-   
-![1000002773](https://github.com/user-attachments/assets/26d10cd9-619b-4f76-b6f5-314d492b32eb)
+${\textsf{\color{lightgreen} Straight + She/her + extrovert + dry at times}}$
 
-<img width="420" height="294" alt="1000002876" src="https://github.com/user-attachments/assets/bf47c583-0dd3-4a52-90c2-77bdce73b606" />
+❗- I am studying 한국어 + 日本語 and I will soon study Tiếng Việt.
+
+❗- I am really interested in Confucian culture
+
+❗- I like guys. Girls don't flirt w/ me unless your [Hann](https://github.com/hanniehannie)
+
+❗- 18+ int freely. If you are younger than 13 I will intwc okay?
+
+❗- I don't use tone tags!
+
+❗- after school I want to be a tattoo artist 
+
+☄️☄️☄️☄️
+## ${\textsf{\color{lightblue}🌈Interests}}$
+🩵- Confucian culture
+
+🩵- Boxing
+
+🩵- Music
+
+🩵- drawing 
+
+🩵- History
+
+🩵- Foreign language
+
+## 🪽 ${\textsf{\color{beige}Before you interact}}$
+
+🦴- I like to talk about my interests and I would love to hear about yours!
+
+🦴- I don't talk alot so please don't expect some chapter book ahh paragraph asking about how your day has been
+
+🦴- I dont like rape jokes okay?
