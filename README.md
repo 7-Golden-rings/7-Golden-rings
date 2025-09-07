@@ -3,4 +3,6 @@
  <p align="center">{ ✭ STAY - 2020-2025 ! } </p>
     <p align="center">+</p>
     
-  <p align="center">{1DERZ - 2025-2024 ! }<</p>
+  <p align="center">{1DERZ - 2025-2024 ! }
+  </p>
+
