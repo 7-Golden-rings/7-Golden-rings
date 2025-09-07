@@ -12,8 +12,6 @@ ${\textsf{\color{lightgreen} Straight + She/her + extrovert + dry at times}}$
 
 ❗- I don't use tone tags!
 
-❗- after school I want to be a tattoo artist 
-
 ☄️☄️☄️☄️
 ## ${\textsf{\color{lightblue}🌈Interests}}$
 🩵- Confucian culture
