@@ -1,36 +1,6 @@
 #     <p align="center">Leah</p>
+   <p align="center">Straight + 14 + She/her + eng and studying Korean + Japanese + Vietnamese</p>
 
-${\textsf{\color{lightgreen} Straight + She/her + extrovert + dry at times}}$
-[AtaBook](https://chr1stmas3ve1.atabook.org)
+❗- I am a minor. 18+ int freely, -13 ill int with care
 
-❗- I am studying 한국어 + 日本語 and I will soon study Tiếng Việt.
-
-❗- I am really interested in Confucian culture
-
-❗- I like guys. Girls don't flirt w/ me unless your [Hann](https://github.com/hanniehannie)
-
-❗- 18+ int freely. If you are younger than 13 I will intwc okay?
-
-❗- I don't use tone tags!
-
-☄️☄️☄️☄️
-## ${\textsf{\color{lightblue}🌈Interests}}$
-🩵- Confucian culture
-
-🩵- Boxing
-
-🩵- Music
-
-🩵- drawing 
-
-🩵- History
-
-🩵- Foreign language
-
-## 🪽 ${\textsf{\color{beige}Before you interact}}$
-
-🦴- I like to talk about my interests and I would love to hear about yours!
-
-🦴- I don't talk alot so please don't expect some chapter book ahh paragraph asking about how your day has been
-
-🦴- I dont like rape jokes okay?
+### 🇺🇸🇰🇷🇻🇳🇯🇵
