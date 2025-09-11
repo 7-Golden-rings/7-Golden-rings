@@ -11,3 +11,7 @@
  <p align="center">Basic dni . . Kpop fans int</p>
 
  ![1000002909](https://github.com/user-attachments/assets/17d814ec-5303-4cc4-a33c-632b56cd6c5b)
+
+TELL ME SOUMA ISNT THE CUTEST LITTLE BABY BRO
+↓
+![1000002901](https://github.com/user-attachments/assets/fa96f401-a0e6-480b-a21c-b24c75cb16b7)
