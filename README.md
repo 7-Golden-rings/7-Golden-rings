@@ -1,4 +1,4 @@
-#     <p align="center">Changbin / Yeosang / Hyeon-ju </p>
+#     <p align="center">Changbin / Yeosang / Hyeon-ju / Souma </p>
 
 ![1000002948](https://github.com/user-attachments/assets/c2969cfe-2a4b-4e8b-828a-faa534565ad8)
 
