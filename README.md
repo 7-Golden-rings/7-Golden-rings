@@ -11,4 +11,4 @@
  Music: 
      <p align="center">ONE OR EIGHT, ATEEZ, STRAYKIDS, ZE:A, BLACKPINK, P1HARMONY, tripleS, JACKSON WANG, GOT7, WONHO, TAEYANG, more ill add soon!</p>
 
-![1000002944](https://github.com/user-attachments/assets/98f8c73d-1cde-49ed-bb4b-dce9de5d3cbd)
+<img width="735" height="728" alt="1000002634" src="https://github.com/user-attachments/assets/db8ecd9a-86cd-4738-b748-f1cf009b677e" />
