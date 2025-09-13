@@ -4,7 +4,7 @@
 
 [atabook](https://chr1stmas3ve1.atabook.org)
 [Carrd](https://ateezuhyrha.carrd.co)
-[pronouns](https://Leahisgoated.org)
+[pronouns](https://en.pronouns.page/@Leahisgoated)
 
 ![1000002883](https://github.com/user-attachments/assets/4192c2de-56de-49bb-8914-a7798183bc13)
     <p align="center">14yo Female - studying Tiếng Việt and 한국어 - straight</p>
