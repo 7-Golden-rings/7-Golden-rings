@@ -1,5 +1,12 @@
-   <p align="center">" 남쪽한국 "</p>
+<p align="center">read this byi!</p>
 
-<img width="2560" height="1707" alt="1000002925" src="https://github.com/user-attachments/assets/afe1d191-acf2-4efe-b315-139522e321cf" />
+![1000002880](https://github.com/user-attachments/assets/a53aecf9-3a27-4f41-a766-d2c21e9eac61)
 
+   <p align="center">I go by Takeru or Changbin or Binnie, but my real name Is Leah! </p>
+    <p align="center">all int! ${\textsf{\color{darkred}except immature people...}}$ </p>
+        <p align="center">Im 14 years old..I am straight. does that mean im homophobic? nope.
 
+ <p align="center">She / her only please!</p>
+
+ Music: 
+     <p align="center">ONE OR EIGHT, ATEEZ, STRAYKIDS, ZE:A, BLACKPINK, P1HARMONY, tripleS, JACKSON WANG, GOT7, WONHO, TAEYANG, more ill add soon!</p>
