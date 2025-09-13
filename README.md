@@ -1,14 +1,11 @@
-<p align="center">read this byi!</p>
+#     <p align="center">Changbin / Yeosang / Hyeon-ju </p>
 
-![1000002880](https://github.com/user-attachments/assets/a53aecf9-3a27-4f41-a766-d2c21e9eac61)
+![1000002948](https://github.com/user-attachments/assets/c2969cfe-2a4b-4e8b-828a-faa534565ad8)
 
-   <p align="center">I go by Takeru or Changbin or Binnie, but my real name Is Leah! </p>
-    <p align="center">all int! ${\textsf{\color{darkred}except immature people...}}$ </p>
-        <p align="center">Im 14 years old..I am straight. does that mean im homophobic? nope.
+[atabook](https://chr1stmas3ve1.atabook.org)
+[Carrd](https://ateezuhyrha.carrd.co)
+[pronouns](en.pronouns.page/Leahisgoated)
 
- <p align="center">She / her only please!</p>
-
- Music: 
-     <p align="center">ONE OR EIGHT, ATEEZ, STRAYKIDS, ZE:A, BLACKPINK, P1HARMONY, tripleS, JACKSON WANG, GOT7, WONHO, TAEYANG, more ill add soon!</p>
-
-<img width="735" height="728" alt="1000002634" src="https://github.com/user-attachments/assets/db8ecd9a-86cd-4738-b748-f1cf009b677e" />
+![1000002883](https://github.com/user-attachments/assets/4192c2de-56de-49bb-8914-a7798183bc13)
+    <p align="center">14yo Female - studying Tiếng Việt and 한국어 - straight</p>
+![1000002910](https://github.com/user-attachments/assets/fc8d6c5d-5702-4935-9021-6f9dc1c21b09)
