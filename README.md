@@ -6,8 +6,9 @@
 [ATABOOK](https://chr1stmas3ve1.atabook.org)
 carrd? soon ! ^^
 
- ![1000002952](https://github.com/user-attachments/assets/5d63d9ae-6e1f-4163-b495-4408dd86d820)
-__________
+![1000002956](https://github.com/user-attachments/assets/b3a3034d-e770-45cc-8987-0c0d2f623c90)
+
+_________
 
  # PLEASE READ UNTIL THE END SOBS
 One thing that people have a huge problem with is joking about health problems such as seizures, cancer, diabetes, disorders, autism, ECT. Please walk me through on how y'all mfs think joking about these topics are funny. They aren't and if you joke about shit like that like "I'm having a seizure", "Im autistic", when you don't suffer from any health problems then y'all actually need to grow the fuck up. Idk where people thought about joking about health and disabilities were humorous but if you do your fucking sick and you need fucking help because you joking about shit like that just proves how immature and disgusting you actually fucking are. Please grow tf up
