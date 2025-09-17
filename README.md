@@ -1,5 +1,3 @@
-<p align="center">Age: 14 <June 10th! ></p>
-
 <p align="center">𝗟𝗮𝗻𝗴𝘂𝗮𝗴𝗲𝘀: ♥한국어♥ , English , Tiếng Việt , Italiana</p>
 
 <p align="center">𝗦𝗲𝘅𝘂𝗮𝗹 𝗼𝗿𝗶𝗲𝗻𝘁𝗮𝘁𝗶𝗼𝗻 / 𝗽𝗿𝗼𝗻𝗼𝘂𝗻𝘀: Straight + She/her</p>
@@ -12,3 +10,8 @@
      <p align="center">> TOXIC STAYS OR ANY TOXIC SIDES OF FANDOMS</p>
 
  #1 buddie ! :3 :[Jarosek](https://github.com/PolishKorean2009)
+
+hey [hannnnnnn](https://github.com/hanniehannie). this could he us bby😘!
+
+![1000002988](https://github.com/user-attachments/assets/167ccea8-c49a-4490-bc23-f3f1cbd02b26)
+
