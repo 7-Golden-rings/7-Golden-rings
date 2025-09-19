@@ -6,8 +6,11 @@
 
  <p align="center">Bias + favs: Kang Yeosang ( ATEEZ ) , Seo Changbin (SKZ) , Kim Yug-yeom ( GOT7 ) , Taeyang ( BIGBANG ) , Takeru (ONE OR EIGHT) , Souma ( ONE OR EIGHT ) , Yuga ( ONE OR EIGHT )</p>
 
- <img width="736" height="920" alt="1000002804" src="https://github.com/user-attachments/assets/401a46f0-519c-4f97-80cc-7e71cc651906" />
+ ![1000002956](https://github.com/user-attachments/assets/2a805c0a-972c-4df3-8cdb-a1c2709c52d3)
 
-![1000002961](https://github.com/user-attachments/assets/e3295bde-6634-4cae-91da-578f7448aa35)
+ ![1000002961](https://github.com/user-attachments/assets/5a2ac322-5cb9-4568-843c-8e3f9834bd54)
 
-![1000002956](https://github.com/user-attachments/assets/30db60d9-79e5-4511-9802-ce3fdd903c40)
+
+ <img width="736" height="920" alt="1000002784" src="https://github.com/user-attachments/assets/bb768163-347a-4215-b21e-aeb4ea2428af" />
+
+
