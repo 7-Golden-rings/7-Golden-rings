@@ -1,5 +1,5 @@
 #     <p align="center">Leah</p> 
-  <p align="center">한국어 , eng , Italiana</p>
+  <p align="center">한국어 , eng , Italiana ，中國人</p>
 
  <p align="center">14 yo ( June 10th ) - she/her only - Straight</p>
 
